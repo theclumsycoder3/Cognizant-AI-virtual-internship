@@ -1,3 +1,4 @@
 # Cognizant-AI-virtual-internship
 
-[forage cognizant certificate.pdf](https://github.com/user-attachments/files/18050957/forage.cognizant.certificate.pdf)
+
+![forage cognizant certificate_page-0001](https://github.com/user-attachments/assets/056f14ef-6a50-41c3-916b-8b2cfdbfc61d)
